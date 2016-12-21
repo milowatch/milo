@@ -9,7 +9,7 @@ Before Yiannopoulos got [banned from Twitter](https://www.buzzfeed.com/charliewa
 * ["Made-up genders don’t make you special, they make you a retard."](http://archive.is/oNL2f)
 * ["...it stands to reason that looking at fat, ugly people depresses testosterone. This is certainly how any red-blooded man feels when looking at a hamplanet."](http://archive.is/NAFms)
 * ["Fat people should hate themselves."](http://archive.is/WIfA4)
-* [Some universities have a policy of affirmative [sexual] consent that requires a “yes” every 10 minutes. First of all, gross.](http://archive.is/2Rupq)
+* ["Some universities have a policy of affirmative [sexual] consent that requires a “yes” every 10 minutes. First of all, gross."](http://archive.is/2Rupq)
 
 #Milo Yiannopoulos is unethical
 If his misogynist, transphobic, racist history isn't enough for you, well, Yiannopoulos raised money for a "scholarship" that he [deposited into his own bank account](http://www.mediaite.com/online/breitbarts-milo-yiannopoulos-raised-100k-for-charity-deposits-it-in-his-bank-account/); he also [failed to pay his employees on time and then tried to blackmail them](https://www.theguardian.com/media/2013/mar/01/the-kernel). He [doesn't even write his own articles.](https://www.buzzfeed.com/josephbernstein/top-conservative-writer-is-a-group-effort-sources-say?utm_term=.wyeBG2gwN#.ua9oeDx09)
